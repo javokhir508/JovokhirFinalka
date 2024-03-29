@@ -1,2 +1,2 @@
 # JovokhirFinalka
-Tomato Food Finalkaga Qlingan
+Tomato Food Finalka
